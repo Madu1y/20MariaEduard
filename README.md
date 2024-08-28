@@ -15,3 +15,5 @@ gosto de desenhar no digital 🖋️ ,viajar✈️ ,boxe🥊 ,anime, jogar basqu
 **minhas cores favoritas são**: vermelho,verde e laranja❤️💚🧡
 
 entre em contato comigo em: **chaves.maria12@escola.pr.gov.br**
+
+![.](https://media1.tenor.com/m/Xw4FRbDuQf0AAAAC/dominik.gif)
